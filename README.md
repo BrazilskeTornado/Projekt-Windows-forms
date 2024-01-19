@@ -1,1 +1,1 @@
-CEOS - Jan Fukal a David Švaříček
+CEOs - Jan Fukal a David Švaříček
